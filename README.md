@@ -21,4 +21,4 @@
 如果你正在寻找一个永久免费、更新快、播放顺畅的日本AV平台，欢迎收藏本站，随时访问。我们将持续提供优质内容和良好体验，让你在每一次观影中都能感受到便捷、舒适与放心。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/77542 ）</span>
